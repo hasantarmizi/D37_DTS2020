@@ -1,2 +1,2 @@
-# D37_DTS2020
+# hasantarmizi
 Projek kelompok D37
